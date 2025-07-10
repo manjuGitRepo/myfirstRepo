@@ -1,0 +1,3 @@
+bijapur
+lgs
+tikota
