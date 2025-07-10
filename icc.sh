@@ -1,4 +1,0 @@
-Teams
-IND
-AUS
-PAK
